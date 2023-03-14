@@ -17,7 +17,7 @@
       https://www.puzzledescapegames.com
       
       You can also check out a children's book I wrote and graphically designed. It's called The Floor is Full of Sharks. 
-      Just go to the folder and open the layout.pdf
+      www.tomerikrossavik.com/sharks
 
 
 - 📫 If you want to get a hold of me, email me at tomerik@puzzledescapegames.com or tomerik@gmail.com
