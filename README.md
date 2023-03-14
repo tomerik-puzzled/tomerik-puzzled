@@ -1,4 +1,4 @@
-- 👋  Hi, I’m @tomerik-puzzled
+- 👋  Hi, I’m Tom Erik
 
 - 👀  I’m interested in lots of things... maybe too many things. 
       Some of my favorite things are tennis, escape games (especially hidden doors), movies and Norwegian waffles.
